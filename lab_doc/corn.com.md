@@ -24,7 +24,7 @@
 
     I built this company from the ground up, with nothing but my own two hands, and a small donation of £4,000,000 from my father.
 
-    Despite my evident success with Corn.com, I am still looking for collaborators and opportunities to create - please feel free to download my CV and share it with your friends & family : 
+    Despite my evident success from Corn.com, I am still looking for collaborators and opportunities to create - please feel free to download my CV and share it with your friends & family : 
     
     CV
 
